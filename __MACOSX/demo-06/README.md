@@ -20,3 +20,4 @@ El creador de **Marvel** Comics _fallecio_ *12 de noviembre del 2018*
 
 :neckbeard:
 :alien:
+:star: ling
