@@ -17,3 +17,6 @@ El creador de **Marvel** Comics _fallecio_ *12 de noviembre del 2018*
 ![Homero](https://schmitman.com/wp-content/uploads/2015/08/homer2-680x380.png)
 
 [Enlase a google](https://www.google.com/)
+
+:neckbeard:
+:alien:
